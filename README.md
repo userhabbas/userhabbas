@@ -1,6 +1,5 @@
 - 👋 Hi, I'm @userhabbas Habbas D Hutabarat
 - 👀 I am interested in Web Developer and Cyber Security
-- 🌱 I'm currently studying WordPress and Cyber Security
 - 📫 Contact me via email userhabbas@proton.me
 
 <!---
