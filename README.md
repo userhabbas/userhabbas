@@ -1,6 +1,5 @@
 - 👋 Hi, I'm @userhabbas Habbas D Hutabarat
-- 👀 I am interested in Cyber Security & Law
-- 📫 Contact me via email userhabbas@proton.me
+- 📫 Contact me via email habbasqueen@gmail.com
 - 🔗 Linkedin https://www.linkedin.com/in/userhabbas/
 
 <!---
