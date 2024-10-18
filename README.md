@@ -1,5 +1,5 @@
 - 👋 Hi, I'm @userhabbas Habbas D Hutabarat
-- 📫 Contact me via email habbasqueen@gmail.com
+- 📫 Contact me via email userhabbas@gmail.com
 - 🔗 Linkedin https://www.linkedin.com/in/userhabbas/
 
 <!---
